@@ -1,4 +1,10 @@
-# FOW-Chrom-Sources
+# Friday Night Funkin': Full of Woe (FOW) – Official Chromatic Sources
+
+This repository contains the official chromatic scale sources used in the
+Friday Night Funkin': Full of Woe (FOW) mod.
+
+Maintained by the creator of the mod.
+
 
 Wednesday → Jenna Ortega’s spicy wings interview
 
