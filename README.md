@@ -19,3 +19,7 @@ Isaac → Yes, Owen Painter & Hunter Doohan Have Seen Your Fancams | Wednesday S
 Ajax → Wednesday’s Ajax Reacts to ‘Sad’ Break up With Emma Myers Character Enid
 
 Bruno → Noah B Taylor Talks Wednesday Season 2, Enid and Bruno's Relationship, Emma Myers and MORE
+
+
+
+#FullofWoe #FullofWoeChromaticScale
