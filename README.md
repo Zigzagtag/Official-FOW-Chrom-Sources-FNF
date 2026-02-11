@@ -8,7 +8,7 @@ Maintained by the creator of the mod.
 
 Wednesday → Jenna Ortega’s spicy wings interview
 
-Enid → Emma Myers_ Sharing Stories and Spreading Light 🌟 _ TikTok - Google Chrome 2025-08-16 21-08-26
+Enid → Emma Myers_ Sharing Stories and Spreading Light 🌟 _ TikTok
 
 Tyler → Hunter Doohan Talks Wednesday Season 2, Working with Jenna Ortega and Tim Burton, and Tyler Galphin
 
